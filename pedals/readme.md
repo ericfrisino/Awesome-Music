@@ -1,0 +1,134 @@
+# Pedals!
+
+- [**29 Pedals**](https://www.believableaudio.com/collections/29-pedals) – Minimalist utility boxes like buffered drivers, boosts, and fuzz
+- [**1981 Inventions**](https://1981inventions.com) – Small line low-gain distortion and full-range overdrive pedals
+- [**Aguliar**](https://aguilaramp.com) – heads, cabinets, preamps, pickups, and effects pedals for bass
+- [**Airline Guitars**](https://airlineguitars.com/collections/guitar-pedals) – A single fuzz pedal
+- [**Alexander Pedals**](https://www.alexanderpedals.com) – dense multi-effect modulation/delay boxes
+- [**Art Pro Audio**](https://artproaudio.com) – vacuum tube preamplifiers, compressors, and utility pedals
+- [**Ampeg**](https://ampeg.com) – bass amp giant (owned by Yamaha) with a line of bass effects pedals
+- [**Analog Man**](https://analogman.com) – classic-voiced, mod specialists
+- [**Bananana Effects**](https://banananaeffects.com) – Pitch, shimmer, glitch, and synth pedals
+- [**Baroni Labs**](https://baroni-lab.com) – Classic pedals and amp circuits to their game-changing Miniamp line
+- [**Beetronics**](https://www.beetronicsfx.com) – Colorful, hand-painted, unique fuzz/filter designs
+- [**Behringer**](https://www.behringer.com/) – budget-focused, enormous output, part of Music Tribe
+- [**Big Ear Pedals**](https://www.bigearpedals.com) – tiny-batch, wild fuzz experiments
+- [**Blackstar**](https://blackstaramps.com/product-type/pedals/) – UK amp brand, growing pedal catalog
+- [**Bleek District Electric**](https://bleakdistrict.co.uk) – Original guitar effects pedals and audio electronics
+- [**Bondi Effects**](https://bondieffects.com/) – Australian, boutique overdrives/boosts
+- [**Boss**](https://www.boss.info/global/categories/effects_pedals/) – Roland-backed, the industry standard
+- [**Catalinbread**](https://catalinbread.com) – tone-shifting fuzz, overdrive, tape-style echo
+- [**Caroline Guitar Company**](https://carolineguitar.com) – Hand-wired lo-fi and reverb pedals
+- [**Chase Bliss Audio**](https://www.chasebliss.com/) – Analog circuits with digital control, gorgeous UX
+- [**Collision Devices**](https://collisiondevices.com) – NYC noise/fuzz collaborations
+- [**Color Audio**](https://coloraudio.fi/) – boutique preamps modeled on vintage tape/cassette recorder channel strips for warm, lo-fi character
+- [**Cooper FX**](https://reverb.com/brand/cooper-fx) – deep, tweakable modulation/reverb _Generation Loss is a cult classic_
+- [**Cult FX**](https://cultfx.com/) – boutique retailer/shop specializing in exclusive and limited-edition pedals
+- [**Cusack Music**](https://cusackmusic.com) – tap tempo tremolos, screamers, oddball effects
+- [**Darkglass Electronics**](https://www.darkglass.com) – Overdrive and distortion tones complemented by multiband processing
+- [**Danelectro**](https://danelectro.com/pedals/) – mass-market budget pedal line, wide retail presence
+- [**Death By Audio**](https://deathbyaudio.com/) – Gnarly, unconventional fuzz and distortion
+- [**Devi Ever**](https://deviever.net) – DIY-rooted, extreme fuzz pedals
+- [**Diamond Pedals**](https://www.diamondpedals.com) – Canadian, refined compressors/modulation
+- [**DigiTech**](https://digitech.com) – whammy, looper, multi-effects pioneers
+- [**Disaster Area Design**](https://www.disasterareadesigns.com) – Simple MIDI controllers ot elaborate switching systems
+- [**Donner**](https://us.donnermusic.com/collections/guitar-pedals) – budget/mass-market, wide beginner-friendly catalog
+- [**Dr. Scientist**](https://www.drscientist.ca) – State-of-the-art pedal effects that take your tone on an adventure
+- [**Dunlop**](https://www.jimdunlop.com) – Pedal institution
+- [**Dwarfcraft Devices**](https://reverb.com/brand/dwarfcraft-devices) – weird and experimental, small-batch
+- [**EarthQuaker Devices**](https://www.earthquakerdevices.com/) – wild fuzzes and modulation, Akron OH
+- [**Echo Fix**](https://echofix.com) – Tape echo machines and studio grade effects pedals
+- [**Electro harmonix**](https://www.ehx.com/products/effects-interface/) – NYC institution, massive catalog (Big Muff, POG, Memory Man)
+- [**Emerson Custom**](https://emersoncustom.com) – hand-wired, no-nonsense drives
+- [**Empress Effects**](https://empresseffects.com/) – Canadian, precise and feature-dense
+- [**Endorphin.es**](https://www.endorphin.es) – Hand-built mulitvoicer pedals
+- [**Eventide**](https://www.eventideaudio.com/pedals/) – Reverbs, delays, pitch shifting, chorus and multi FX.
+- [**Fairfield Circuitry**](https://fairfieldcircuitry.com/) – quirky, musical, cult-favorite fuzzes / compressors
+- [**Fender pedals**](https://www.fender.com/collections/effects-pedals) – guitar giant’s in-house effects line
+- [**Foxpedal**](https://reverb.com/brand/foxpedal) – hand-wired, warm-sounding drives and fuzzes
+- [**Friedman Amplification**](https://friedmanamplification.com/shop/c/pedals/) – amp-in-a-box drives, big reputation
+- [**Free The Tone**](https://www.freethetone.com/en/) – Japanese, ultra-high-end build quality
+- [**FT Electronica**](https://www.ftelettronica.com/) – Italian handmade fuzz, filter, modulation, and synth/drone effects pedals
+- [**Fulltone**](https://www.fulltoneusa.com) – long-running boutique-to-mainstream crossover
+- [**Function f(x)**](https://function-fx.com/site/) – deep modular-style modulation
+- [**Fuzzrocious**](https://fuzzrociouspedals.com) – NJ-based, aggressive fuzz and mod
+- [**Game Changer Audio**](https://gamechangeraudio.com/) – bold, mechanical/optical designs _Plus Pedal, Plasma_
+- [**GFI System**](https://gfisystem.com) –  Reverb, modulation, and utility pedals
+- [**Gibson / Maestro**](https://www.gibson.com/collections/maestro) – Gibson revived the legendary Maestro pedal brand with major backing
+- [**Greenhouse Effects**](https://www.gheffects.com) – small-batch, hand-built oddities
+- [**Hologram Electronics**](https://www.hologramelectronics.com) – ambient, granular, experimental textures
+- [**Ibanez**](https://www.ibanez.com/usa/) – legacy tone machines (Tube Screamer lineage)
+- [**Idiotbox Effects**](https://www.idiotboxeffects.com) – small-batch, hand-painted, wild graphics
+- [**IK Multimedia**](https://www.ikmultimedia.com) – TONEX, AmpliTube, iLoud, ARC, iRig, ReSing, T-RackS, MODO brands
+- [**Industrialectric**](https://reverb.com/brand/industrialectric-1) – Unconventional stompboxes that lean into experimental, industrial, and often chaotic sonic territory 
+- [**Interstellar Audio Machines**](https://interstellaraudiomachines.com) – unique sounds for unique musicians
+- [**J. Rockett Audio Designs**](https://rockettpedals.com) – artist-collab overdrives, solid team
+- [**Jet Pedals**](https://jetpedals.com/)
+- [**JHS Pedals**](https://jhspedals.info/) – huge catalog, great overdrives and boosts
+- [**Keeley Electronics**](https://robertkeeley.com) – polished, versatile compressors/drives
+- [**Kernom**](https://kernom.com/en-us) – Spanish, sculptural drive/fuzz designs
+- [**Korg**](https://www.korg.com/us/products/effects/) – Japanese electronics giant, makes tuners, multi-effects, and the revived Pandora/Nu:Tekt lines
+- [**Line 6**](https://line6.com) – modeling amps/effects (HX series), part of Yamaha
+- [**LPD Pedals**](https://www.lpdpedals.com/)
+- [**Made on Earth**](https://www.moe-shop.net) – Chorus, drum, and booser pedals
+- [**Malekko Heavy Industry**](https://reverb.com/marketplace?query=malekko%20pedal) – analog delays, fuzz, eurorack crossover
+- [**Marshall pedals**](https://www.marshall.com/us/en/amplifiers/pedals) – amp legend’s stompbox line
+- [**Maneco Labs**](https://manecolabs.com/) – 16 Seconds reissue and shoegaze pedals
+- [**Meris**](https://meris.us/) – pro-grade reverb/delay/pitch, used by touring acts
+- [**Mid-Fi Electronics**](https://www.midfielectronics.com) – lo-fi, glitchy, hand-built oddities
+- [**Mile End Effects**](https://mileendeffects.org) – Preamps, delays, and phasers
+- [**Milkman Sound**](https://milkmansound.com) – Preamps and booserts
+- [**Montreal Assembly**](https://mtlasm.com) – bizarre, art-project-adjacent circuits
+- [**Mooer**](https://www.mooeraudio.com/pro/18.html) – mass-market Chinese, huge catalog, mini format pioneers
+- [**Morningstar FX**](https://www.morningstar.io) – Powerful and flexible MIDI foot controllers for musicians
+- [**Mr. Black Pedals**](https://www.mrblackpedals.com/) – Consistent delivery of stellar and unique tones
+- [**MXR**](https://www.jimdunlop.com/products/electronics/mxr/) / _Dunlop_ – ubiquitous, huge catalog, still respected tone-wise
+- [**Neural DSP**](https://neuraldsp.com) – Quad Cortex line
+- [**NUX**](https://nuxaudio.com) – mass-market Chinese, budget multi-effects and modelers
+- [**Old Blood Noise Endeavors**](https://oldbloodnoise.com/) – experimental modulation and reverb
+- [**Olinthus**](https://olinthus.com) – Tiny pedals to inspire creativity
+- [**Orange pedals**](https://orangeamps.com/en-us/collections/pedals) – UK amp maker’s compact effects line
+- [**Origin Effects**](https://origineffects.com) – UK, studio-compressor-quality pedals
+- [**Peavey**](https://peavey.com/product-category/accessories/effect-pedals-footswitches/effect-pedals/) – long-running budget-to-mid amp/effects manufacturer
+- [**Phil Jones**](https://www.pjbworld.com/cms/p-pe-5-pre-amp-eq-di/) – Pre-amps, amps and more for bass
+- [**Pigtronix**](https://www.pigtronix.com/pedals/) – NY-based, synth-style effects at scale
+- [**Pladask Elektrisk**](https://pladaskelektrisk.com) – Norwegian, tactile and unusual interfaces
+- [**Polyend**](https://polyend.com) – Stomps, compressors, and synths
+- [**Positive Grid**](https://www.positivegrid.com) – Spark, digital modeling amps/pedals
+- [**Quilter**](https://www.quilterlabs.com)
+- [**Radial**](https://www.radialeng.com) – Distortion, amp sims, high-quality DI boxes, and preamps
+- [**Rainger FX**](https://www.raingerfx.com) – Effects pedals for today’s guitarists
+- [**Recovery Effects**](https://recoveryeffects.com) – lo-fi, tape-inspired modulation and fuzz
+- [**Red Panda**](https://www.redpandalab.com/) – glitchy, granular delay/pitch effects
+- [**Red Witch Analog**](https://redwitchpedals.com)
+- [**Rockett Pedals**](https://rockettpedals.com) – Pedals by players, for players
+- [**Roland**](https://www.roland.com/global/products/rc_boss_effects_pedals/) – parent company of Boss, also releases effects under its own name
+- [**Skreddy Pedals**](https://skreddypedals.com) – vintage-voiced fuzz/overdrive clones and originals
+- [**Solo Dallas**](https://solodallas.com/) – Boutique preamp/compressor clones _Schaffer Replica_
+- [**SOMA Laboratory**](https://somasynths.com) – Synths!
+- [**Source Audio**](https://sourceaudio.net) – programmable, deeply flexible multi-effects
+- [**Spindrift Audio**](https://spindriftaudio.com/)
+- [**Strymon**](https://www.strymon.net) – premium, lush reverb/delay/modulation
+- [**Sub Decay**](https://subdecay.com) – tremolo, synth-like modulation
+- [**T-Rex Engineering**](https://www.t-rex-effects.com) – Danish, colorful analog pedals
+- [**Tallon Electric**](https://tallonelectric.com/) – heavy/modern-leaning pedals built around artist collabs in the metal and metalcore scene
+- [**Tanabe**](http://www.tanabe.tv/top/kudou/index-e.html) – Japanese, minimalist boutique drives
+- [**Tape Audio Co.**](https://www.tapeaudio.com) – Pedals with a unique experience, both in sound and style
+- [**TC Electronic**](https://www.tcelectronic.com/en/products) – Danish, huge modulation/reverb catalog
+- [**Thorpy FX**](https://thorpyfx.com/) – UK-made, boutique overdrives/fuzz
+- [**Union Tube & Transistor**](https://www.uniontone.com) – hand-wired fuzz/preamp pedals
+- [**Universal Audio**](https://www.uaudio.com/collections/guitar-pedals) – studio-grade compressors/preamps in pedal form
+- [**Vein-Tap**](https://www.vein-tap.com) – hand-built, unconventional fuzz/drive
+- [**Vongon**](https://www.vongon.com) – Synths and voicing pedals
+- [**Voodoo Lab**](https://voodoolab.com) – power supplies, switchers, modulation
+- [**Vox**](https://voxamps.com/type/multi-effects/) – classic British gear maker’s pedal offerings
+- [**Walrus Audio**](https://www.walrusaudio.com/) – reverbs/delays/fuzz, great build quality
+- [**Wampler Pedals**](https://www.wamplerpedals.com) – studio-quality drives and dynamics
+- [**Warm Audio**](https://voodoolab.com) – Pedal boards and power supplies
+- [**Way Huge**](https://www.jimdunlop.com/products/electronics/way-huge/) – quirky names, big personality drives/fuzz
+- [**WMD Devices**](https://wmdevices.com) – Synths and distortion pedals
+- [**Wren and Cuff**](https://www.wrenandcuff.com) – Big Muff-style fuzz specialists
+- [**Xotic Effects**](https://xotic.us/effects/) – Japanese-American, refined boosts/drives
+- [**Zeplin Design Labs**](https://zeppelindesignlabs.com) – Harmonic and midi pedals
+- [**Zoom**](https://zoomcorp.com/en/us/multi-effects/) – mass-market multi-effects units, huge budget/intermediate market share
+- [**Zvex**](https://www.zvex.com) – hand-painted, iconic (Fuzz Factory, Box of Rock)
