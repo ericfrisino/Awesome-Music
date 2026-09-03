@@ -84,6 +84,7 @@
 - [**Mr. Black Pedals**](https://www.mrblackpedals.com/) – Consistent delivery of stellar and unique tones
 - [**MXR**](https://www.jimdunlop.com/products/electronics/mxr/) / _Dunlop_ – ubiquitous, huge catalog, still respected tone-wise
 - [**Neural DSP**](https://neuraldsp.com) – Quad Cortex line
+- [**NOKILL Pedal Co**](https://nokillpedal.co)
 - [**NUX**](https://nuxaudio.com) – mass-market Chinese, budget multi-effects and modelers
 - [**Old Blood Noise Endeavors**](https://oldbloodnoise.com/) – experimental modulation and reverb
 - [**Olinthus**](https://olinthus.com) – Tiny pedals to inspire creativity
